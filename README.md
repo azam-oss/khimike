@@ -1,0 +1,2 @@
+# khimike
+moy magazin
